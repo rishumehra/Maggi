@@ -25,4 +25,4 @@ Stir Maggi noodles for another three or four minutes and then serve it.
 
 
 ----
-**Thanks for learning how to cook Maggi. Now like [Maggi Lovers page](https://facebook.com/evilstreak/markdown-js) on Facebook.**
+**Thanks for learning how to cook Maggi. Like [Maggi Lovers page](https://www.facebook.com/MaggiLovers/) on Facebook.**
