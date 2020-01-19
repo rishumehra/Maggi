@@ -13,7 +13,7 @@ Break noodle cake and dip in the boiled water for another two or three minutes.
 
 ----
 ## Step 3: Maggi Masala
-Add Maggi masala while cooking
+Add Maggi masala while cooking.
 
 > **Note**
 >
