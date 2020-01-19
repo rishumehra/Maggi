@@ -4,7 +4,7 @@ Following is the procedure to cook Maggi noodles:
 
 ----
 ## Step 1: Boil Water
-Boil two cups of water (375mL) in a sauce pan for two minutes.
+Boil two cups of water (total of 375mL) in a sauce pan for two minutes.
 
 ----
 ## Step 2: Dip Maggi Noodles
